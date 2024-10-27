@@ -1,0 +1,1 @@
+# medpal-app-privacy-policy
